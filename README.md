@@ -1,0 +1,1 @@
+Amazing Consultancy is a premier business consulting firm dedicated to providing expert guidance and innovative solutions to organizations of all sizes. We specialize in strategic planning, business development, operational efficiency, and digital transformation, helping businesses achieve sustainable growth.
